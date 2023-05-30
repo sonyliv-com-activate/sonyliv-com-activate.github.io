@@ -1,3 +1,3 @@
-# Bing Chatgpt
+# Sonyliv.com/activate 
 
-Bing ChatGPT is a natural language processing program that is run by AI technology that allows you to ask any question or query and get relevant information about your query.
+Sonyliv.com/active is a process that allows users to activate the SonyLIV streaming service on their devices.
